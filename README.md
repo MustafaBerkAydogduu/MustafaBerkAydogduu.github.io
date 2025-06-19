@@ -1,1 +1,0 @@
-# MustafaBerkAydogduu.github.io
